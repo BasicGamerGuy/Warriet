@@ -2,7 +2,7 @@
 Game coming in 2024 i think
 
 
-We are the crew of our new educational game called Blooket Warrior game
+We are the crew of our new educational game called Warriet
 
 We code some great things about our game
 *Coding 10/10/23*
