@@ -1,12 +1,16 @@
-# BlooketWarriorGame
-Game coming in 2024 i think
+Welcome to Warriet! A brand new educational game where you get to have fun and experiance the combination with your favorite Blooket and your favorite private server Blacket. This game is coded by cph101 and these aren't hacks for the game. We hate hacks!
 
+You can spam packs, play games, trade, banners/titles, even chatting.
 
-We are the crew of our new educational game called Warriet
+You can buy Plus, Ultra Plus, and God Plus with using your own tokens. We will not give you free stuff only for giveaway.
 
-We code some great things about our game
-*Coding 10/10/23*
+Rules:
 
-We will be posting hacks on github but do not over use it because we will kick you or ban you
-
-Subscribe to the creator - https://www.youtube.com/@BlooketWarriorYT
+1. DO NOT HACK
+2. Do NOt Use Any Type Of Things We Won't Allow
+3. DO NOT Cuss in chat
+4. DO NOT Begg for any free stuff
+5. DO NOT Say Anything Mean because we'll see the video you post.
+6. DO NOT Do Anything stupid If You Do We'll Mute You OR EVEN BAN YOU
+7. DO NOT USE /anything like MUTES, or BANS
+8. DO NOT CREATE YOUR OWN SCRIPT FOR WARRIET HACKS WE WILL DESABLE IT
