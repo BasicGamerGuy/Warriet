@@ -27,6 +27,6 @@ Table of Context
 6) Is this a private server? - Is a matter of fact it is a private server of Blooket and you get to play on it 24/7 not a public server.
 
 7) Conculsion Policy - Do I have to read the policy? Is a matter of fact YES YOU DO to keep the game safe and keep the game eviromental and keep it long and living.
-![Screenshot 2023-06-09 6 40 53 PM](https://github.com/BlooketWarrior/Warriet/assets/124001000/0d2e8920-b78e-44a4-80eb-10cd1e312d27)
-![Screenshot 2023-06-09 6 40 15 PM](https://github.com/BlooketWarrior/Warriet/assets/124001000/7a9f2b3a-dc0e-419b-b599-f0c180ea6c26)
 ![Screenshot 2023-06-09 6 39 11 PM](https://github.com/BlooketWarrior/Warriet/assets/124001000/918ecc51-43cf-4527-9b66-87592050a35b)
+![Screenshot 2023-06-09 6 40 15 PM](https://github.com/BlooketWarrior/Warriet/assets/124001000/7a9f2b3a-dc0e-419b-b599-f0c180ea6c26)
+![Screenshot 2023-06-09 6 40 53 PM](https://github.com/BlooketWarrior/Warriet/assets/124001000/0d2e8920-b78e-44a4-80eb-10cd1e312d27)
